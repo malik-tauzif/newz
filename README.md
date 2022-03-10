@@ -1,2 +1,3 @@
 #Bismillah
 Allahu akbar
+subhanallah
